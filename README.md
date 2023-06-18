@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @BR41NY
+- 👀 I’m interested in projects which help to solve a problem for many people
+- 🌱 I’m currently learning many things such as the absolute basics of cybersecurity, and many more
